@@ -1,4 +1,4 @@
-
+top blue lock rivals Script offers the most advanced blue lock rivals Script, with teleport and infinite resources. Perfect for dominating any match.
 
 
 
